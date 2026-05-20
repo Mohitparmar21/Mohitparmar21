@@ -20,7 +20,7 @@ Cybersecurity Enthusiast • Ethical Hacker • Security Researcher
 
 ---
 
-# 🛡️ Cybersecurity Profile
+# 🛡️ Cybersecurity Learner
 
 <table align="center">
 <tr>
